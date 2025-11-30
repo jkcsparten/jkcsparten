@@ -2,7 +2,7 @@
 
   <br>
   
-<p align="center"><img width="300" height="300" src="https://pbs.twimg.com/media/GrPuri2XUAA21MB?format=jpg&name=medium">
-<p align="center"> <i>samjake
+<p align="center"><img width="300" height="500" src="https://pbs.twimg.com/media/G5e8K5nXIAA5kpz?format=png&name=small">
+<p align="center"> <i>i need to go to my doctor monster appointment
   
-[ata](https://library.atabook.org/) ノ [straw](https://bpddirectory.straw.page)
+[ata](https://sealdirectory.atabook.org/) ᎓ [rentry](https://rentry.co/jkcscabin)
